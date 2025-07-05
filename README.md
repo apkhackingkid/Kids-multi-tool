@@ -1,4 +1,5 @@
 # 🌌 Kids-multi-tool 🌌
+# 👾 Use exe version its ez and better 👾
 # ☄️ u need to check path in python and goto modify after u installed i think and check all of those and install call me if it doesnt work discord = apkhackingkid ☄️
 # 👾 disable real time protection 👾
 # 🪐 it has so much good things sorry but i cant give images rn my pc broke im on my phone but it works 🪐
