@@ -1,2 +1,2 @@
 # Kids-multi-tool
-new frickin multi tool insane
+u need to check path in python and goto modify after u installed i think and check all of those and install call me if it doesnt work discord = apkhackingkid
