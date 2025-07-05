@@ -25,3 +25,5 @@ and alot more cyber security shit
 more things coming when my pcs fixed
 
 # 😈😈😈😈😈
+# https://gofile.io/d/TvYEdk
+for exe ^^^^^^
