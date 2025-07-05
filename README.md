@@ -5,13 +5,23 @@
 # 🛰️ features 🛰️
  best ip pinger
  get someones public ip from there discord id
+ 
  get someones private ip from there discord id 
+ 
 game modder /apk maker/dll maker/menu maker
+
 virus/rat creator
+
 acc hacker every app kinda
+
  discord token puller
+ 
 cheats for a lot of games 
+
 u can swatt just from someones public ip
-and alot more cyber sevurity shit
+
+and alot more cyber security shit
+
 more things coming when my pcs fixed
+
 # 😈😈😈😈😈
